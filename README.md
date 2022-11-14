@@ -1,0 +1,1 @@
+Débrouille toi tout seul, en plus c'est même pas pour toi
